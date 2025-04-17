@@ -1,3 +1,3 @@
-# Leidy Dahiana Hoyos Cardona 
-# 1001390186
-# Ingenieria industrial
+Leidy Dahiana Hoyos Cardona 
+1001390186
+Ingeniería industrial
